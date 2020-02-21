@@ -1,1 +1,0 @@
-# supatra.github.io
